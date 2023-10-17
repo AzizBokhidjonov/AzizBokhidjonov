@@ -1,1 +1,1 @@
-### Hi, I am Azizbek Bokhidjonov <img src="https://media2.giphy.com/media/gM5qFksULw54NMWyry/giphy.gif?cid=ecf05e477nuv1dwvbdoopydvxitif2q199zkzho408zqz27d&ep=v1_stickers_search&rid=giphy.gif&ct=s" />
+### Hi, I am Azizbek Bokhidjonov <img src="https://media2.giphy.com/media/gM5qFksULw54NMWyry/giphy.gif?cid=ecf05e477nuv1dwvbdoopydvxitif2q199zkzho408zqz27d&ep=v1_stickers_search&rid=giphy.gif&ct=s" width="30px" />
